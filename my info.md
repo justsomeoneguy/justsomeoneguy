@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @justsomeoneguy
+- 👀 I’m interested in gaming and coding.
+- 🌱 I’m currently learning coding and english.
+- 💞️ I’m looking to collaborate on no data.
+- 📫 How to reach me i DONT SAY my email is dzonukradze98@gmail.com
